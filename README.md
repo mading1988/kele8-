@@ -10,3 +10,5 @@ game,because we like it so much before,i play with my brother every day before,t
 3：enter the game and play,maybe have chinese player here
 this is a free sever,is a classic chinese web game
 中国玩家需要设置一下ie,
+
+we have nba nfl nhl mlb clothes,shoes,hat,bags and glasses, contact me 2998974168@qq.com
