@@ -13,9 +13,6 @@ https://www.youtube.com/user/Twizzler...
 
 ✔INSTAGRAM: collinabroadcast https://instagram.com/collinabroadcast/
 
-
-
-
 ✔SNAPCHAT: rockafur https://snapchat.com/add/rockafur
 
 ✔TWITTER: @CollinSphere https://twitter.com/CollinSphere
@@ -96,25 +93,30 @@ https://youtu.be/QNbyodv4jls
 
 -EXPERIENCE MY CLASS! I take you through a typical day teaching English!
 https://youtu.be/oHArk6UTMhc
-where to buy fake and how to buy
+
+
+
+where to buy fake and how to buy fake 
 
 online
 
-1taobao.com
+1.taobao.com
 
-2alibaba.com
+2.alibaba.com
 
-31688.com
+3.1688.com
 
 many wish amazon，ebay，etsy，joom product from here
 
-4AliExpress.com
+4.AliExpress.com
 
-5 dhgate.com
+5.dhgate.com
 
-6 idgod
+6.idgod
 
-7debweb empire and silkroad market
+7.quora and reddit 
+
+8.debweb empire and silkroad market
 contact use icq，jabber，telegram
 
 not buy use visa ，mastercard on other web，the web record ur cvv，and you will lost money，paypal not fair for fake seller，if u find a trust seller，buy use west union，deb web use btc
@@ -169,7 +171,123 @@ china cant login facebook and youtube，and many other web without proxy，so u 
 if u live in west europe，go to turkey，istanbul
 
 why ppl buy and sell fake，because，we are not rich also look forward good quality，if every ppl buy real，the world will not exsist
-in fact，few ppl earn big money for the business，adidas and nike are still winner。in china have a sentence，let every ppl can buy famous brand，let the business of the world easy，have chinese movie named i m not drug god，i hope ppl to watch，police man catch ppl who use fake id，but many ppl’s wife sleep with other man when they back from vietnam war they dont care.
-
+in fact，few ppl earn big money for the business，adidas and nike are still winner。in china have a sentence，let every ppl can buy famous brand，let the business of the world easy，have chinese movie named i m not drug god，
 contact 
 29998974168@qq.com
+
+we supply 
+-Footwear
+-Clothing
+-bags
+-cosmetics
+-jerseys
+-Electronics
+-watch
+-clarisonic
+-Bedclothes
+-hats
+-Glasses
+-Accessories
+-necktie
+-Belt
+-Perfume
+-scarf
+-Socks
+-Gloves
+-other
+
+
+-Own brand
+
+ Nike
+ Adidas
+ Jordan
+ New Balance
+ Converse
+ woman shoes
+ kid shoes 
+ -Vans
+ Ugg australia
+ -Puma
+ -Reebok
+ －Skechers
+ -Asics
+ -Armani
+ -ECCO
+ -HERMES
+ Under Armour Curry
+ -BURBERRY
+ -CL
+ -CAT
+ -COACH
+ -CHANEL
+ -Dior
+Givenchy
+ -LeCoqSportif
+ -Columbia
+ -GUCCI
+ -Fitflop
+ -JEEP
+ Golden Goose
+ -Kappa
+ -JackWolfskin
+ -LV
+ -CAMEL
+ MBT
+ -FILA
+ mizuno
+ -LACOSTE
+ -Polo
+ -Palladium
+ -PRADA
+ -Clarks
+ Supra
+ -Simulation
+ -salomon
+ -Timberland
+ -TODS
+ -TOMS
+ UBIQ
+ soccer shoes
+-A&F
+ -ADIDAS
+ -Hermès
+ belstaff 
+ BOSS
+ Calvin Klein
+ -BURBERRY
+ -PUMA
+ -converse
+ Coat
+ D&G-
+ KENZO
+ Evisu/
+ Supreme
+ LACOSTE
+Champion
+Balenciaga
+ -Versace
+ -GUCCI
+ -FILA
+ Herve Leger
+ wedding dress
+ JUICY
+ -KAPPA
+ -Jordan
+-LV
+ underwear
+ -NIKE
+ jeans pant
+ woman clothes
+ PUCCI
+ Polo
+-PRADA 
+-Kids clothes
+ -bags
+ NBA
+ NCAA clothes
+ Nfl clothes
+ Nhl clothes
+-Football clothes
+
+more product can ask ,we give a good price,hope ppl konw we are kind,not liar ,not scam,only honest business,earn money together
