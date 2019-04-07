@@ -1,179 +1,36 @@
-
-WATCH the other 'Where's Poppy and Collin Abroadcast collab video' on her channel here:
-https://www.youtube.com/watch?v=pOdUL...
-
-Check out and SUBSCRIBE to her channel here:
-https://www.youtube.com/user/Twizzler...
-
-
----------------------------------------------------------------------------------------------------------
-♥Support the Hustle!
-
-✔PATREON: Collin Abroadcast (Love you guys, thanks!) https://www.patreon.com/CollinAbroadcast
-
-✔INSTAGRAM: collinabroadcast https://instagram.com/collinabroadcast/
-
-✔SNAPCHAT: rockafur https://snapchat.com/add/rockafur
-
-✔TWITTER: @CollinSphere https://twitter.com/CollinSphere
-
-✔FACEBOOK: Collin Abroadcast https://www.facebook.com/CollinAbroad...
------------------------------------------------------------------------------------------------------------
-
-► Previous video: Shenzhen Knockoff Market Spree!
-https://youtu.be/4pqLP43mWZg
-
-Fake Yeezy Store in China!
-https://youtu.be/KK8pvptAA6Q
-
-Shenzhen Imitation Market Haul! https://www.youtube.com/watch?v=rlDZR...
-
-Shenzhen Black Market Gold Mine! (Part 1)
-https://youtu.be/Qrc0kN7OCRE
-
-This Apartment is Only $500 in China https://www.youtube.com/watch?v=szGyy...
-
-Counterfeit Market Bargaining Challenge | US vs UK
-https://www.youtube.com/watch?v=GA0Nl...
-
-China Fake Night Market Adventure!
-https://www.youtube.com/watch?v=WRCdO...
-
-Shanghai Imitation Market Bonanza! https://www.youtube.com/watch?v=pk8Hz...
-
--Shanghai Fake Replica Market Spree!
-https://youtu.be/9EvoW4QjCzI
-
--Why are Hostel World's Directions Such S***?|https://youtu.be/2eoUHlDYAxw
-
--BREAKING INTO a London Ghost Town in China
-https://www.youtube.com/watch?v=0WcPr...
-
--China's Futuristic Malls Placed in Dystopian Looking Cities
-https://www.youtube.com/watch?v=dWbKs...
-
-- $250 vs $500 Chinese Apartments 
-https://www.youtube.com/watch?v=bjqMR...
-
-- The TIME of our LIVES in Thailand's Hidden Backpacking Paradise!
-https://www.youtube.com/watch?v=gmjF5...
-
-- I Have a Score to Settle with Hong Kong
-https://youtu.be/FJpYnVyAFDo
-
-- Exploring Shanghai's TOP 4 Tourist Attractions 
-https://youtu.be/-4jTxOdfMhQ
-
--INSIDE China's Italian Ghost Town
-https://youtu.be/E8TbOPzpeKc
-
-- Shanghai Knockoff Market Adventure!
-https://youtu.be/I1FhSCKOfhg
-
--Crazy Bargaining in Shanghai's Fake Markets
-https://youtu.be/XlLIPD6Ujdc
-
-- It's More Fun in the Philippines! | Manila's Daranak Falls
-https://youtu.be/hO2dyAGHxF4
-
-- A DAY IN SHANGHAI
-https://youtu.be/lDuLjC6uT6o
-
--LOST ON YELLOW MOUNTAIN-
-https://youtu.be/UJ0eqoZis9s
-
--SHANGHAI'S COUNTERFEIT MARKET
-https://youtu.be/b85qNMhZz6Y
-
--WHAT CHINESE STUDENTS THINK OF AMERICANS
-https://youtu.be/j3cwaad6-6s
-
--TEACHER AND STUDENT RELATIONS
-https://youtu.be/QNbyodv4jls
-
--EXPERIENCE MY CLASS! I take you through a typical day teaching English!
-https://youtu.be/oHArk6UTMhc
-
-
-
-where to buy fake and how to buy fake 
-
-online
-
-1.taobao.com
-
-2.alibaba.com
-
-3.1688.com
-
-many wish amazon，ebay，etsy，joom product from here
-
-4.AliExpress.com
-
-5.dhgate.com
-
-6.idgod
-
-7.quora and reddit 
-
-8.debweb empire and silkroad market
-contact use icq，jabber，telegram
-
-not buy use visa ，mastercard on other web，the web record ur cvv，and you will lost money，paypal not fair for fake seller，if u find a trust seller，buy use west union，deb web use btc
-
-travel
-
-if u come to china，go to beijing ，shanghai，guangzhou，shenzhen
-to buy product，or u can go biggest market of the world in yiwu，or linyi city，
-
-beijing near russia，east europe ppl like here，but market far from factroy，near beijing have a town named anxin make shoes，but most are low quality。
-
-Artwork copy in putian city ，shenzhen dafen village。
-
-jinjiang city and shishi city also good city for shoes and clothes
-
-Artwork copy in putian city ，shenzhen dafen village
-
-jinjiang and shishi also good city for shoes and clothes
-
-guangzhou have fake id，female clothes，shoes，hat ，bags，watches。
-
-shenzhen have iphone，parts of computer and unmanned aerial vehicle。
-
-shanghai near factroy cites they are changsu，suzhou，hangzhou，wenzhou，changzhou，yiwu town have biggest small items market of the 
-world。
-
-
-linyi is second biggest market of china，jimo town of qingdao city also have big market，these are 2 market of north part，have a town named jiaxiang of shandong province made Ski gloves
-
-shanghai near clothes factroy and shoes factroy，changsu，suzhou，hangzhou，wenzhou，yiwu，changzhou
-
-linyi city is second market of china，jimo town of qingdao city also have big markets .these are 2 market of north part
-
-other east south asia country u also can go fake and undergroud market also such as vietnam and hk，indonisia，malaysia，the Philippines
-
-sport clothes，glasses，bags，hats，wallet，shoes，clothes，watches，jewelry，parts of computer or phone，many brand can buy in many asia country，
-
-most fasion brand easy find in china
-
-all market u can give price half the seller give u，
-
-fake id ，passport in thailand
-
-real international drive lisence can buy in Laos
-
-fake medicine many in india，Bangladesh
-
-fake cigarette Yunxiao City of fujian province
-
-china cant login facebook and youtube，and many other web without proxy，so u need a proxy，chinese food good，because china have 5000year history，cant eat simple food so many years，dongguan city have many chinese whore，some north cites have russian whore
-
-if u live in west europe，go to turkey，istanbul
-
-why ppl buy and sell fake，because，we are not rich also look forward good quality，if every ppl buy real，the world will not exsist
-in fact，few ppl earn big money for the business，adidas and nike are still winner。in china have a sentence，let every ppl can buy famous brand，let the business of the world easy，have chinese movie named i m not drug god，
-contact 
-29998974168@qq.com
+暗网导航 | DeepNav | http://jpe6qltxg6am3jwk.onion
+行业导航 http://underdj5ziov3ic7.onion/
+国内网站导航 http://underdj5ziov3ic7.onion/category/CHINESE
+暗网交易网站 http://lei6ezsexd4iq2tm.onion/index.php
+中文搜索 http://hss3uro2hsxfogfq.onion/
+自由国度论坛 http://pncldyerk4gqofhp.onion/free/index
+深网中文论坛 http://tryd46hql4bn5hhz.onion/index.php
+网站更新网 http://zlal32teyptf4tvi.onion/
+色情导航网 https://theporndude.com/
+邮箱 http://torbox3uiot6wchz.onion/sm/src/login.php
+http://secmailw453j7piv.onion/src/login.php
+市场导航网 https://www.deepdotweb.com/
+梦想市场 http://6khhxwj7viwe5xjm.onion/?category=106
+帝国市场 http://empiremktxgjovhm.onion/index/login
+新丝路 http://silkroad7rn2puhj.onion/captcha.php
+交易网站 http://35nwli65sok6lnqh.onion/shop
+网站挖掘 http://darkweba6le5w52w.onion/category/darkwebmarkets/silk-road/
+
+https://bidamount.com/ebay-dealers-selling-fake-chinese-antiques
+
+http://www.yahoolv.com.tw/
+
+https://aestheticprints.com/
+
+https://fakeidvendors.com/page/vvl
+
+http://paypalshop.x.yupoo.com/
+
+https://trustsellers.com/dhgate/
+
+https://github.com/Alvin9999/new-pac/wiki翻墙
+
+cheapyeezyshop.ru
 
 we supply 
 -Footwear
